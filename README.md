@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tsabiitahmustahfizdahA 
+- 👋 Hi, I’m Tsabiitah Mustahfizdah Arsal (Tsabiitah)
 - 👀 I’m interested in travelling
 - 🌱 I’m currently learning psychology and leadership
 - 💞️ I’m looking to collaborate on e-commerce company
